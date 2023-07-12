@@ -14,3 +14,9 @@ Here are some ideas to get you started:
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 -->
+似乎是正在好好学习的大学生..
+
+正在好奇地尝试各种各样奇奇怪怪的东西👯
+
+https://kuaji.club/
+(贴一个虽然目前空空如也但说不定会随机掉落更新的博客🔭
