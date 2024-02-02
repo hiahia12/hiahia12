@@ -22,6 +22,4 @@ Here are some ideas to get you started:
 [![Anurag's GitHub stats](https://github-readme-stats.vercel.app/api?username=hiahia12)](https://github.com/anuraghazra/github-readme-stats)
 
 
-https://kuaji.club/
-(贴一个虽然目前空空如也但说不定会随机掉落更新的博客🔭
 
